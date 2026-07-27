@@ -1,0 +1,1 @@
+Smartpage Signature Assets
